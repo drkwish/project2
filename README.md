@@ -2,4 +2,4 @@
 
 This project is creadted by local syatem.
 
-awais ali 
+awais ali practis .
